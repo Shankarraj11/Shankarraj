@@ -18,7 +18,7 @@ Gmail: shankarraj9597@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/shankar-raj-ba0228192/
 
-Sololearn: 
+Sololearn: https://www.sololearn.com/profile/25994894
 
 Hackerrank:https://www.hackerrank.com/shankarraj9597
 
